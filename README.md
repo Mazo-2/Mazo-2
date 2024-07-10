@@ -1,5 +1,4 @@
--  Hi, my real name is fatima mahzaib
--  I’m interested in coding
+-  Hi, my name is fatima
 -  i can make games, logos, webpages and I also make pictures of cartoon caracters, anime characters and some nature pictures all by coding :)
 -  please follow and mesage me on https://www.instagram.com/fatima_mahzaib/
 
